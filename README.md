@@ -1,4 +1,4 @@
-# Hi, I'm Dharunkumar R 👋
+# Hi, I'm Dharunkumar👋
 
 🤖 AI & Automation Engineer | Cloud Defender | Toil Eliminator
 
